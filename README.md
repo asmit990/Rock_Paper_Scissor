@@ -1,1 +1,1 @@
-Just doing this for fun
+doing this just for fun
